@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="220" height="169" alt="image" src="https://github.com/user-attachments/assets/51de2f6a-6e76-497c-85ac-b756bc4b67ac" />
 
 <!--
 **flippycest/flippycest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
