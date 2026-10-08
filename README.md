@@ -1,6 +1,9 @@
 ![kaito / fey](https://readme-typing-svg.demolab.com?font=Noto+Sans&size=26&color=8FBC8F&center=true&vCenter=true&width=800&lines=%F0%93%8F%BD+%DD%81+kaito+%2F+fey+%F0%93%88%92%E2%80%8F%E3%A7%86;%F0%93%88%92%E2%80%8Fhtf+fans+pls+moot%E3%80%80%D9%85+%EA%92%B1%EA%92%B1;%F0%9F%A5%A9+~+%28%E0%B9%91%E1%B5%94%E2%A4%99%E1%B5%94%E0%B9%91%29)
 
-<img src="https://64.media.tumblr.com/69588417bc20a385a2516a14dea18a70/a1c0a7dfc9d8579c-4d/s250x400/89edd4dfa06beaee48758daf559eb4c7cf2c854d.gifv" align="CENTER" alt="border">
+<p align="center">
+  <img src="https://64.media.tumblr.com/69588417bc20a385a2516a14dea18a70/a1c0a7dfc9d8579c-4d/s250x400/89edd4dfa06beaee48758daf559eb4c7cf2c854d.gifv" width="300">
+</p>
+
 <!--
 **flippycest/flippycest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
