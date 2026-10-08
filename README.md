@@ -1,4 +1,4 @@
-![TEST](https://readme-typing-svg.demolab.com?font=VT323&size=32&color=00FF00&width=500&lines=TEST)
+![TEST](https://readme-typing-svg.demolab.com?font=Quicksand&size=30&color=8FBC8F&width=500&lines=TEST)
 
 <img src="https://64.media.tumblr.com/69588417bc20a385a2516a14dea18a70/a1c0a7dfc9d8579c-4d/s250x400/89edd4dfa06beaee48758daf559eb4c7cf2c854d.gifv" align="CENTER" alt="border">
 <!--
