@@ -1,3 +1,8 @@
+
+　　 　𓏽 ݁   kaito / fey 𓈒⠀　ᧆ
+　　     htf fans pls moot　ׅ ꒱꒱
+　 ⠀⠀┆ ⠀𓈒⠀ t𝚡t ⓣext　e　
+
 <img src="https://64.media.tumblr.com/69588417bc20a385a2516a14dea18a70/a1c0a7dfc9d8579c-4d/s250x400/89edd4dfa06beaee48758daf559eb4c7cf2c854d.gifv" align="CENTER" alt="border">
 <!--
 **flippycest/flippycest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
